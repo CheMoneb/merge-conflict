@@ -1,4 +1,4 @@
-Allons enfant de la patrie,
+Je ne me souviens pas des paroles,
 Le jour de gloire est arrivé!
 Contre nous de la tyrannie,
 L'étendard sanglant est levé
